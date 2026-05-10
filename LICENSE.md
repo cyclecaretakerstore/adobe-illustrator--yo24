@@ -1,4 +1,4 @@
-
+Enhance Adobe Photoshop for macOS with automatic Adobe Photoshop for macOS Filter | masking tools + UI themes, the #1 filter. Includes masking tools and UI themes for a smoother
 
 
 
